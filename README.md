@@ -2,6 +2,7 @@
 
 ## Project Hastings 
 https://www.projecthastings.org
+
 CBC News Individual Interview: https://www.youtube.com/watch?v=lwi7FM2UknM 
 
 **Previous Executive Director of Operations | Current General Advisory Board Member**
