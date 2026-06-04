@@ -1,6 +1,7 @@
 # Leadership & Community Impact: International Non Profits
 
-## Project Hastings
+## Project Hastings 
+https://www.projecthastings.org
 
 **Previous Executive Director of Operations | Current General Advisory Board Member**
 
@@ -14,6 +15,7 @@ Project Hastings is a student-led non-profit focused on alleviating food and hou
 * Supported organizational expansion beyond Vancouver, establishing initiatives in Toronto and Paris.
 
 ## TEDxYouth@MageeSecondary
+https://www.ted.com/tedx/events/53013
 
 **Organizer**
 
@@ -41,6 +43,7 @@ The Canadian Firefly Foundation is a registered non-profit dedicated to addressi
 * Led the UNICEF School Tent Initiative, contributing to the construction of 35 school tents in developing communities.
 
 ## Canadian Sunshine Foundation
+https://sunshinefoundations.com
 
 **Vice President**
 
