@@ -2,9 +2,9 @@
 
 ## Project Hastings
 
-Previous Executive Director of Operations | Current General Advisory Board Member
+**Previous Executive Director of Operations | Current General Advisory Board Member**
 
-September 2021 – Present
+*September 2021 – Present*
 
 Project Hastings is a student-led non-profit focused on alleviating food and housing insecurity in Vancouver's Downtown Eastside through meal distribution, care packages, and community outreach initiatives.
 
