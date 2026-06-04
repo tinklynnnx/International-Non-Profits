@@ -2,8 +2,9 @@
 
 ## Project Hastings
 
-**Previous Executive Director of Operations | Current General Advisory Board Member**
-*September 2021 – Present*
+Previous Executive Director of Operations | Current General Advisory Board Member
+
+September 2021 – Present
 
 Project Hastings is a student-led non-profit focused on alleviating food and housing insecurity in Vancouver's Downtown Eastside through meal distribution, care packages, and community outreach initiatives.
 
@@ -15,6 +16,7 @@ Project Hastings is a student-led non-profit focused on alleviating food and hou
 ## TEDxYouth@MageeSecondary
 
 **Organizer**
+
 *November 2022 – July 2024*
 
 TEDxYouth@MageeSecondary was the first official TEDx event hosted at Magee Secondary School, providing students and community members with a platform to share ideas and personal stories.
@@ -27,6 +29,7 @@ TEDxYouth@MageeSecondary was the first official TEDx event hosted at Magee Secon
 ## Canadian Firefly Foundation
 
 **Co-Founder**
+
 *February 2018 – July 2024*
 
 The Canadian Firefly Foundation is a registered non-profit dedicated to addressing poverty and improving access to education through community-driven initiatives and international outreach.
@@ -40,6 +43,7 @@ The Canadian Firefly Foundation is a registered non-profit dedicated to addressi
 ## Canadian Sunshine Foundation
 
 **Vice President**
+
 *March 2017 – July 2024*
 
 The Canadian Sunshine Foundation is a registered non-profit focused on expanding educational access and empowering students to pursue their interests through community-led clubs, initiatives, and leadership opportunities.
