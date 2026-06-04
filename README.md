@@ -29,7 +29,7 @@ TEDxYouth@MageeSecondary was the first official TEDx event hosted at Magee Secon
 * Coordinated event logistics and fundraising efforts, raising over $8,000 CAD.
 
 ## Canadian Firefly Foundation
-canadianfireflyfoundation.squarespace.com
+https://www.canadianfireflyfoundation.squarespace.com
 
 **Co-Founder**
 
