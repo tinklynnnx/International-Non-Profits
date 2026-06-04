@@ -1,4 +1,4 @@
-# Leadership & Community Impact: International Non Profits
+# Community Impact: International Non Profits
 
 ## Project Hastings 
 https://www.projecthastings.org
